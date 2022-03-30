@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @amandafmc08
+- 👀 I’m interested in  aprender, colabora com novos projetos, aprimorar meus conhecimentos
+- 🌱 I’m currently learning  atraves de bootcamps e estou cursando  analise e desenvolviemnto de sistemas
+- 💞️ I’m looking to collaborate on  em projetos iniciais
+- 📫 How to reach me linkedin.com/in/amandamartins08
